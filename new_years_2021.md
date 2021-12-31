@@ -44,11 +44,12 @@
 
 - Atrás da Verde e Rosa....
 - Trem das onze
-
+- É devegar (C Dm G7) - https://www.cifraclub.com.br/martinho-da-vila/devagar-devagarinho/
 
 
 # FR
 - Aline (C E7 F G7) -  https://tabs.ultimate-guitar.com/tab/christophe/aline-chords-1476808
+- Toute le bonheur do monde - https://tabs.ultimate-guitar.com/tab/sinsemilia/tout-le-bonheur-du-monde-chords-381414
 - Siffler sur la coline https://tabs.ultimate-guitar.com/tab/joe-dassin/siffler-sur-la-colline-chords-1735733
 - Santiano - https://tabs.ultimate-guitar.com/tab/hugues-aufray/santiano-chords-1229498
 - 
