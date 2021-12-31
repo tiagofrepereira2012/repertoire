@@ -46,3 +46,9 @@
 - Trem das onze
 
 
+
+# FR
+- Aline (C E7 F G7) -  https://tabs.ultimate-guitar.com/tab/christophe/aline-chords-1476808
+- Siffler sur la coline https://tabs.ultimate-guitar.com/tab/joe-dassin/siffler-sur-la-colline-chords-1735733
+- Santiano - https://tabs.ultimate-guitar.com/tab/hugues-aufray/santiano-chords-1229498
+- 
